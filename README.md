@@ -1,4 +1,4 @@
-🚀 I Started My AI Internship at CodSoft!
+🚀 I Completed My AI Internship at CodSoft!
 
 Grateful to receive this opportunity to grow in the field of Artificial Intelligence and apply my learning through practical projects.
 
